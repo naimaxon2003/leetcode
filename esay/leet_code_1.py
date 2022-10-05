@@ -1,0 +1,1 @@
+# mana shu yerda bergan masalamni yozib ketorasiz keyin commit qilib push berib bororasiz
