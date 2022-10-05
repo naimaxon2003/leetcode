@@ -1,0 +1,1 @@
+#  mana yangi fayl qoshidm
